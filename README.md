@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me mail.
 - 😄 Pronouns: Attack helicopter
-- ⚡ Fun fact: God wants me dead.
+- ⚡ Fun fact: Bad luck.
 
 <!---
 Ucanaga/Ucanaga is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
